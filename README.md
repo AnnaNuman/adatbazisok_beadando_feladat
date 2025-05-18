@@ -1,0 +1,1 @@
+# adatbazisok_beadando_feladat
